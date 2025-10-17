@@ -58,4 +58,4 @@ By signing below, we acknowledge that we have read, discussed, and agreed to the
 
 Team Member Signatures:
 
-Shengyang Zhao, Bohan Tang(type names here)
+Shengyang Zhao, Bohan Tang, Heather Anderson, Samridhi Walia (type names here)
