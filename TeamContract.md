@@ -59,7 +59,15 @@ By signing below, we acknowledge that we have read, discussed, and agreed to the
 Team Member Signatures:
 
 Shengyang Zhao
+
 Bohan Tang
+
 Heather Anderson
+
 Samridhi Walia
+
 Kelly He
+
+Jennifer Qin
+
+Dev Rathod
